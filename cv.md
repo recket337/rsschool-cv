@@ -1,4 +1,5 @@
 # Ilia Kuzin
+<img width="210" alt="Screenshot 2021-03-04 200031" src="https://user-images.githubusercontent.com/24693696/110000467-5eefca80-7d24-11eb-8754-7044b71a1913.png">
 
 
 Located in **Minsk, Belarus**
